@@ -8,5 +8,5 @@
 - ### Você entrar em contato comigo📫
 - tiago.silva.filho@escola.pr.gov.br
 - @gdr_tiaguin
-- 
+- ### Amo o São Paulo
 ![](https://media.tenor.com/_iheVyzHcTgAAAAM/bandeira-do-s%C3%A3o-paulo-s%C3%A3o-paulo-fc.gif)
